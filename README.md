@@ -1,0 +1,1 @@
+# Okul-Yonetim-Uygulamasi
